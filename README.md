@@ -1,4 +1,4 @@
-*▓▒▒░░░*☆⁠+*ﾟ｡HI HI WELCOME WELCOME⁠｡*ﾟ⁠+☆*░░░▒▒▓*
+ *▓▒▒░░░*☆⁠+*ﾟ｡HI HI WELCOME WELCOME⁠｡*ﾟ⁠+☆*░░░▒▒▓*
 
 
 *꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ INT:*
@@ -15,7 +15,13 @@
 - Proshipper
 
 
-*꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ That's all!!*
+*꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ Some notes:*
+
+- I don't like ships so plz consider before talk/int with me (I will be okay with it if you respect my opinion)
+- DNC (DO NOT COPY) my skins!! Inspired or Reference is okay
+  
+
+  *▓▒▒░░░*☆⁠+*ﾟ｡THAT'S ALL⁠｡*ﾟ⁠+☆*░░░▒▒▓*
 
 <!---
 bdf647/bdf647 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
