@@ -5,7 +5,7 @@
 
 - Feel free to C+H cuz I won't bite 😖 
 - I'm multiple tasks most of the time so plz w2i if I don't respond
-- Fandom: BSD, Black Butler, CRK, YanSim, TWST, etc.
+- Fandom: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, etc.
   
 
 *꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI if u are:*
@@ -15,7 +15,7 @@
 - Proshipper
 
 
-*꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ That's all!*
+*꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ That's all!!*
 
 <!---
 bdf647/bdf647 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
