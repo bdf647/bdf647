@@ -13,7 +13,7 @@
 
 *꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI if u are:*
 
-- Racism, homophobia, bodyshamer
+- Racism, homophobic, bodyshamer
 - CanonxOc hater
 - Proshipper
 
