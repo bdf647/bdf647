@@ -6,8 +6,8 @@
 
 *꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ INT:*
 
-- Feel free to C+H cuz I won't bite 😖 
-- I'm multiple tasks most of the time so plz w2i if I don't respond
+- Feel free to C+H cuz I won't bite. 😖 
+- I'm multiple tasks most of the time so plz w2i if I don't respond immediately.
 - Fandom: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, etc.
   
 
@@ -20,9 +20,9 @@
 
 *꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ Some notes:*
 
-- You can call me Deaf/Kohi or any nickname you want to
-- I don't like ships so plz consider before talk/int with me (I will be okay with it if you respect my opinions)
-- DNC (DO NOT COPY) my skins!! Inspired or Reference is okay (But ask me for permission first!)
+- You can call me Deaf/Kohi or any nickname you want to.
+- I don't like ships so plz consider before talk/int with me. (I will be okay with it if you respect my opinions)
+- DNC (DO NOT COPY) my skins!! Inspired or Reference is okay. (But ask me for permission first!)
   
 
   *▓▒▒░░░*☆⁠+*ﾟ｡THAT'S ALL:D⁠｡*ﾟ⁠+☆*░░░▒▒▓*
