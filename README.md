@@ -1,31 +1,37 @@
-![z5801573007896_c9adeefe0ced45b1b185a7a0b9ae8cb5](https://github.com/user-attachments/assets/577ecbc0-b2b2-4d1a-81b2-6aa14a396b45)
+![adda08ec91adec1382bc51b0361e8d61](https://github.com/user-attachments/assets/c7582575-939a-40f8-9bfa-6057acb4bafe)
+
 
  
 ***▓▒▒░░░*☆⁠+*ﾟ｡HI HI WELCOME WELCOME⁠｡*ﾟ⁠+☆*░░░▒▒▓***
 
 
-***꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ INT:***
+***꒰⁠⑅⁠ᵕ⁠༚⁠ᵕ⁠꒱⁠˖⁠♡ About me:***
 
-- Feel free to C+H cuz I won't bite. 😖 
-- I'm multiple tasks most of the time so plz w2i if I don't respond immediately.
-- Fandom: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, etc.
+- You can call me Deaf/Kohi or any nickname you want to.
+- I love C+H so plz C+H cuz I won't bite. 😖
+- Fandom that I'm in: BSD, Black Butler, CRK, YanSim, TWST, SaikiK, TBHK, HLB, etc.
+
   
 
 ***꒰⁠⑅⁠⁠ಠ⁠_⁠ಠ꒱˖⁠× DNI if u are:***
 
-- Racism, homophobic, bodyshamer
-- CanonxOc hater
-- Proshipper
+- Racism, homophobic, bodyshamer.
+- CanonxOc hater.
+- Proshipper.
 
 
 ***꒰⁠⑅⁠人⁠´⁠∀⁠｀⁠꒱⁠˖⁠♡ Some notes:***
+- I don't like ships so plz consider before talk/int with me.
+- I'm multiple tasks most all the time, so plz w2i when I don't respond immediately.
 
-- You can call me Deaf/Kohi or any nickname you want to.
-- I don't like ships so plz consider before talk/int with me. (I will be okay with it if you respect my opinions)
-- DNC (DO NOT COPY) my skins!! Inspired or Reference is okay. (But ask me for permission first!)
-  
+
+
 
 ***▓▒▒░░░*☆⁠+*ﾟ｡THAT'S ALL:D⁠｡*ﾟ⁠+☆*░░░▒▒▓***
+
+
+![978369c4de80cd6efc411b845c634c6d](https://github.com/user-attachments/assets/adc67ce8-54ad-45a6-aa02-867410803551)
+
 
 <!---
 bdf647/bdf647 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
