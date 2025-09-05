@@ -1,4 +1,11 @@
-## Hi there 👋
+<p align='center'>
+  Call me Kohi/Deaf  
+  <img width="2048" height="2048" alt="Untitled71_20250905212019" src="https://github.com/user-attachments/assets/26edadd9-c0e0-4293-88a9-5001e8fb213c" />
+
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┆ ⟢ Sign my [atabook](https://bdf647.atabook.org/) plz plz, pretty plz ┆ ⟢ [Read](https://bdf647-kohi-01.carrd.co/) to know more about me! ┆
+
+
 
 <!--
 **bdf647/bdf647** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
