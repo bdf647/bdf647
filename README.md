@@ -4,7 +4,7 @@
 ⟢ Call me Kohi/Deaf :3 ⟢
 <img width="2048" height="2048" alt="Untitled71_20250905212019" src="https://github.com/user-attachments/assets/26edadd9-c0e0-4293-88a9-5001e8fb213c" />
 
-  ┆ ⟢ Sign my [新abook](https://bdf647.atabook.org/) plz plz, pretty plz ┆
+  ┆ ⟢ Sign my [新book](https://bdf647.atabook.org/) plz plz, pretty plz ┆
 
 
 ------
